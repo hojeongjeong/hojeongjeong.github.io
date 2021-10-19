@@ -1,2 +1,0 @@
-# hojeongjeong.github.io
-webpage
